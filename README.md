@@ -3,7 +3,8 @@
 ![Image](https://user-images.githubusercontent.com/143139691/263140560-4c634743-7792-4233-ae8b-859f65a30066.png)
 <div align="center">
 
-
+<a href="https://discord.gg/n77Vhp9FWC" alt="Join Discord Server"><img src="https://img.shields.io/badge/Discord_Server-5865F2?style=for-the-badge&logo=discord&logoColor=ffffff"></a>
+</div>
 
 ## <a id="disclaimer"></a>⚠️ 〢 DISCLAIMER
 
