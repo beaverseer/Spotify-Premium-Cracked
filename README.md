@@ -54,7 +54,7 @@ SOFTWARE.
 
 <div align="center">
 
-Unlimited Skips
+**Unlimited Skips**
 
 <div align="center">
 
